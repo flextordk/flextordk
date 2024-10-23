@@ -2,8 +2,7 @@
 - 👀 I’m interested in GOLF
 - 🌱 I’m currently learning BETTER GOLF
 - 💞️ I’m looking to collaborate on GOLF
-- 📫 How to reach me find me on the golf course
-- 😄 Pronouns: Like i care;)
+- 📫 How to reach me, find me on the golf course
 - ⚡ Fun fact: Not funny
 
 <!---
